@@ -76,3 +76,4 @@ movement orders for the machine motor.
 ## References
 Available upon request.
 
+![nancy photo](IMG_20230416_020152_424.jpg)
