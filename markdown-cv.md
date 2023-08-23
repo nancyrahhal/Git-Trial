@@ -66,6 +66,10 @@ movement orders for the machine motor.
 ## Awards and Honors
 - Dean's List - Lebanese International University (Fall 2015, Spring 2016, Spring 2017, Fall 2017)
 
+## Languages
+- Arabic: Native language.
+- English: Upper Intermediate.
+
 ## Interests
 - Reading, Philosophy, Fashion
 
